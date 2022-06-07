@@ -1,1 +1,1 @@
-https://ssatae.github.io/rsschool-cv/cv
+https://ssatae.github.io/rsschool-cv/
